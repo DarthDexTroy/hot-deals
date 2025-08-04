@@ -1,1 +1,1 @@
-# affiliate-marketing
+# Hot Deals
